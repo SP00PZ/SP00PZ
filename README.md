@@ -1,4 +1,32 @@
-### Hi there 👋
+## Wow ig i have a github now
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 <!--
 **SP00PZ/SP00PZ** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
